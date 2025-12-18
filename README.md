@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Ami Bajpai
-**An aspiring React Developer**
+****
 
 Email Me 👉 ✉️ **bajpaiami123@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
